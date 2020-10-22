@@ -1,1 +1,1 @@
-Mert yazucu
+Mert Yazıcı
